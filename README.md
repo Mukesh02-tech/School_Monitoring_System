@@ -180,7 +180,7 @@ Sri Manakula Vinayagar Engineering College
 
 🔗 GitHub: https://github.com/Mukesh02-tech
 
-🔗 LinkedIn: *(Add your LinkedIn profile URL)*
+🔗 LinkedIn: https://www.linkedin.com/in/mukeshmuniraj05
 
 ---
 
